@@ -1,0 +1,2 @@
+# Killerz-Army
+Hello there!   Killerz Army  Killerz Army is a paid clan that protects other countries that needs protection. We keep countries that paid us to protect them. We make sure no harm goes on them. Anyone out of our protection list is a Kill On Sight for us. We appreciate and respect anyone who joins our group.   Amazing Community Many Interesting Ranks Has An Advertising Category Currently Working On Our Own Game Collect Points To Rank Up Active Clan Many Activities   Join Now!  https://discord.gg/bq4UYyP !
